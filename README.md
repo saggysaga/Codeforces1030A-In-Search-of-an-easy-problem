@@ -1,0 +1,1 @@
+# Codeforces1030A-In-Search-of-an-easy-problem
